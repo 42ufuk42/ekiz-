@@ -1,0 +1,2 @@
+# ekiz-
+Herkes 
